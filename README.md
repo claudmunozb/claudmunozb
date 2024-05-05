@@ -14,7 +14,7 @@
 
 ## 📬 Contacto
 
-- email: claud-munozb@duocuc.cl
+- email: claud.munozb@duocuc.cl
 
 Gracias por pasar por aqui! 🚀
 
